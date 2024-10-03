@@ -1,6 +1,6 @@
 - 👋 Hi, My Name Is Bill
 - 👀 I’m interested in gaming
-- 🌱 I’m currently learning DDLC
+- 🌱 I’m currently learning about North Korean nuclear missiles
 - 😄 Pronouns: Attack Helicopter 
 - ⚡ Fun fact: Roses are blue and Violets are red 
 
